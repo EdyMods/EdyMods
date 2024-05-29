@@ -1,0 +1,4 @@
+- 👋 Olá, eu sou @EdyMods
+- Esta é a conta de um usuário que disponibiliza mods e patchs de jogos.
+- https://discord.com/invite/JeyCRkRt
+- Esse é meu discord para vocês pegarem os mods e conversarem direto comigo.
